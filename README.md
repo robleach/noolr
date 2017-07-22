@@ -1,0 +1,2 @@
+# noolr
+Abbastanza è sufficiente
