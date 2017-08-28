@@ -97,7 +97,7 @@ I'll see you
 and I'll show you my world  
 splendid in all it's simplicity  
 
-when I see the corder of her eye  
+when I see the corner of her eye  
 I've seen the face of a lovers bloom  
 it will be a while,  
   and I know I'll miss you  
@@ -123,7 +123,7 @@ and the sun looked away in jealousy
 waking to the warmth  
   of her body  
 I remembered when it was  
-only on without the other
+only one without the other
 
 ----------
 
@@ -330,7 +330,7 @@ it's time who mocks at the patience of a man in love.
   his face is shaped without compassion,  
 his promise wastes the body,  
 eating away at the fabric of his jealous love.  
-given up to time's lustful grap, I gave her up  
+given up to time's lustful grasp, I gave her up  
   to an unfriendly affair.  
 at night she sleeps with him, the sporting jester,  
   jeering at a lover's anguishing,  
@@ -348,7 +348,7 @@ only to get up and leave the room at the moment
 of revealing the truth of their twisted lives.  
 this is the story of your life, soldier,  
 the voice said unforgivingly.  
-if we were to make a movie our of your life,  
+if we were to make a movie out of your life,  
 let it be known yours would be lost.  
 no use to try to pretend that you saw  
   some kind of wonderful,  
@@ -377,11 +377,11 @@ cheeks of tears, dirt from groveling for the
 alone, lights turned out, spectators gone  
 to feed on their pigs eyes losing on another life,  
 umpires dismissed, swollen with prideful bitterness,  
-no left to sweep the floor,  
+no one left to sweep the floor,  
 only wind that fades as the grass  
   airs its only opinion  
 pointing its finger straight and narrow,  
-sitting alone, he things for awhile,  
+sitting alone, he thinks for awhile,  
 realizing he can hear a beat, a beat that  
   speaks only to him.  
 what beat do you dance to?  
